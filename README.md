@@ -1,0 +1,1 @@
+A imagination on play that I thought of while walking outside on a bright, blue day. With skies that have stark and beautiful white. I am imagining symbols projecting into the sky. These encodings that match gestures.
